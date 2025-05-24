@@ -1,4 +1,15 @@
-## Hi there 👋
+## dude are we talking horses
+![image](https://github.com/user-attachments/assets/cdcc658a-31f4-4ad4-9236-66c01298eab9)
+
+‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+selfshipper (mirrorsharing)
+
+
+usually afk or sitting with friends!!
+C+H friendly, feel free to whisper (i find it hard to read local chat)
+do not flirt with me :-) 
+
+
 
 <!--
 **erenville/erenville** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
