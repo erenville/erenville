@@ -1,8 +1,6 @@
 ## dude are we talking horses
 
-- ‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
-- selfshipper (mirrorsharing)
-
+‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
 - usually afk or sitting with friends!!
 - C+H friendly, feel free to whisper (i find it hard to read local chat)
