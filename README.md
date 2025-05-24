@@ -1,12 +1,21 @@
 ## dude are we talking horses
 
-![cooltext483181325730731](https://github.com/user-attachments/assets/2a746fcc-32b3-46e2-ad58-e5e0b2e1124e)
 
+hello! my name is tek, but you can also call me cori. 
 
+23 - he/she - masc terms only 
 
-- usually afk or sitting with friends!!
-- C+H friendly, feel free to whisper (i find it hard to read local chat)
-- do not flirt with me :-) 
+usually afk or sitting with friends!!
+
+selfshipper + kinnie (erenville is my wife 𖹭)
+
+# ᓚ₍ ^. .^₎ 𖹭 ₍ᐢ. .ᐢ₎
+
+🗸 cuddles / hiding / booping
+
+🗸 whispers / interaction / friend requests
+
+✗ do not flirt with me :-) 
 
 
 
