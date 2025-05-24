@@ -1,6 +1,8 @@
 ## dude are we talking horses
 
-‧₊˚♪  tek / cori 
+![cooltext483181325730731](https://github.com/user-attachments/assets/2a746fcc-32b3-46e2-ad58-e5e0b2e1124e)
+
+
 
 - usually afk or sitting with friends!!
 - C+H friendly, feel free to whisper (i find it hard to read local chat)
