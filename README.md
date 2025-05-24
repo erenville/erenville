@@ -1,14 +1,12 @@
 ## dude are we talking horses
-![image](https://github.com/user-attachments/assets/c1cb044f-eea3-449b-b16e-cecb63694e84)
+
+- ‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+- selfshipper (mirrorsharing)
 
 
-‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
-selfshipper (mirrorsharing)
-
-
-usually afk or sitting with friends!!
-C+H friendly, feel free to whisper (i find it hard to read local chat)
-do not flirt with me :-) 
+- usually afk or sitting with friends!!
+- C+H friendly, feel free to whisper (i find it hard to read local chat)
+- do not flirt with me :-) 
 
 
 
