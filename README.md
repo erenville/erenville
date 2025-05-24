@@ -1,6 +1,6 @@
 ## dude are we talking horses
 
-‧₊˚♪  tek / cori   ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+‧₊˚♪  tek / cori 
 
 - usually afk or sitting with friends!!
 - C+H friendly, feel free to whisper (i find it hard to read local chat)
