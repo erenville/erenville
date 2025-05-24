@@ -1,5 +1,6 @@
 ## dude are we talking horses
-![image](https://github.com/user-attachments/assets/cdcc658a-31f4-4ad4-9236-66c01298eab9)
+![image](https://github.com/user-attachments/assets/c1cb044f-eea3-449b-b16e-cecb63694e84)
+
 
 ‧₊˚♪ tek / cori ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 selfshipper (mirrorsharing)
