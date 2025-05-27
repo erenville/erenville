@@ -9,6 +9,8 @@ usually afk or sitting with friends!!
 
 selfshipper + kinnie (erenville is my wife 𖹭)
 
+(working on my carrds atm) 
+
 # ᓚ₍ ^. .^₎ 𖹭 ₍ᐢ. .ᐢ₎
 
 🗸 cuddles / hiding / booping
