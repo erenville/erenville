@@ -1,13 +1,11 @@
 ## dude are we talking horses
 
 
-hello! my name is tek, but you can also call me cori. 
+hello! my name is tek, but you can also call me cori or kri
 
-23 - he/she - masc terms only 
+23 - they/any - masc terms preferred but it's whatev
 
 usually afk or sitting with friends!!
-
-selfshipper + kinnie (erenville is my wife 𖹭)
 
 (working on my carrds atm) 
 
