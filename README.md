@@ -1,7 +1,7 @@
 ## dude are we talking horses
 
 
-hello! my name is tek, but you can also call me cori or kri
+hello! tek/kris
 
 23 - they/any - masc terms preferred but it's whatev
 
