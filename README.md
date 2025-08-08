@@ -1,7 +1,7 @@
 ## dude are we talking horses
 
 
-hello! i'm tek/kris
+hello! i'm tek/cori
 
 23 - they/any - masc terms preferred but it's whatev
 
